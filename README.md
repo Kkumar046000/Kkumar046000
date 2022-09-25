@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kkumar046000
+- 👋 Hi, I’m Karan Kumar
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning python, java & c++ language
 - 💞️ follow me on Instagram :- https://www.Instagram.com/kkumar04600
